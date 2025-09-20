@@ -1,6 +1,7 @@
 We are a group of tech-loving engineers and geeks! Specializing in amateur radio 📡, creative electronics DIY 💡, high-fidelity audio amplifiers 🎧, precision linear power supplies 🔋, and more. We are dedicated to providing hardware solutions for enthusiasts, from entry-level to top-tier.
 
 ✨ What Makes Us Unique:
+
 ✅ In-House Design and Production: With a mature production line, we strictly control every step from circuit design to final product delivery.
 
 ✅ Open Collaboration Model: We not only offer ready-made products but also welcome makers and teams with ideas to bring creative projects to life.
