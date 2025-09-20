@@ -1,5 +1,3 @@
-YanTechLan 🔧⚡️
-
 We are a group of tech-loving engineers and geeks! Specializing in amateur radio 📡, creative electronics DIY 💡, high-fidelity audio amplifiers 🎧, precision linear power supplies 🔋, and more. We are dedicated to providing hardware solutions for enthusiasts, from entry-level to top-tier.
 
 ✨ What Makes Us Unique:
