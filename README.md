@@ -25,6 +25,6 @@ Educational institutions or R&D departments
 Individual players with ideas
 
 Let’s turn ideas into reality!
-📱 Contact for collaboration: [WhatsApp: +8615860078706]
+📱 Contact for collaboration: [WhatsApp: +8615060365637]
 
 Great ideas deserve to be realized—we provide all the support to make it happen! 🚀
